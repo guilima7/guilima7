@@ -1,5 +1,5 @@
-### Wasup I
-
+### Wasup
+🇧🇷
 - 🖥️ I’m a student of Computer Engineering
 - 🎒 PUCCAMP
-- ⚽ Soccer is life
+
