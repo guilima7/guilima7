@@ -1,4 +1,4 @@
 ### Wasup
-- 🖥️ I’m a student of Computer Engineering
+- 🖥️ Student of Computer Engineering
 - 🎒 PUCCAMP
 
