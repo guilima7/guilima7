@@ -6,4 +6,4 @@
 <br>
 ⚽Sports lover
 <br>
-🔗Where to find me: [l1nk.dev/LinkedinGuilhermeLS](https://bit.ly/m/LinkedinGuiLS)
+🔗Where to find me: [Linkedin](https://bit.ly/m/LinkedinGuiLS)
