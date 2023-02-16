@@ -6,4 +6,4 @@
 <br>
 ⚽Sports lover
 <br>
-🔗Where to find me: [Linkedin](https://bit.ly/m/LinkedinGuiLS)
+🔗Where to find me: [Linkedin](https://www.linkedin.com/in/guilherme-de-lima-e-sousa-200899241/)
