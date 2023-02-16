@@ -1,3 +1,3 @@
-### Wasup
-- 🖥️ Student of Computer Engineering
-- 🎒 PUCCAMP
+### Hey, I'm Guilherme
+🖥️ Student of Computer Engineering
+🎒 PUCCAMP
